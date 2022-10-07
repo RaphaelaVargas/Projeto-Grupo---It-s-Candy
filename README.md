@@ -1,2 +1,2 @@
 # Projeto-Grupo---It-s-Candy
-https://drive.google.com/file/d/1mFRSyOU1GuE6g8KwzirKCccxSEKJRlFB/view?usp=sharing
+https://drive.google.com/drive/folders/1nRbo30fSzda-eM4SqVCCZlX-hUcdUhsm?usp=sharing
